@@ -30,7 +30,7 @@ measure the size of your head
 
   
 
-crimper your wig to so your for easier to style for it hold shape better and table less 
+crimper your wig to so for easier to style for it hold shape better and table less 
 
   
 
@@ -74,7 +74,7 @@ more texture and holds better
 
   
 
-wig is mad e of synthetic fibres styles i to stay and not drop 
+wig is made of synthetic fibres styles to stay and not drop 
 
 heat it and it cool the shape will stay 
 
@@ -82,4 +82,4 @@ hold the spike until it cool for it take shape
 
 heat to mold 
 
-hold it in place for it to take shape 
+hold it in place for it to take shape
